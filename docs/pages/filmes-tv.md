@@ -143,7 +143,7 @@ Filmes e TV são obras de arte visual que empregam imagens em movimento para imi
 
 ## 🧲 Torrents
 
-### 🌟 [Comando][https://comando.la/](https://comandofilmeshd.site/)
+### 🌟 [Comando](https://comandofilmeshd.site/)
 
 - [Resultados de segurança da URL](https://www.urlvoid.com/scan/comandofilmeshd.site/)
 
